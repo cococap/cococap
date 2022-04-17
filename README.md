@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cococap
-- 👀 I’m interested in ... hacking pokerrr 2 app  
+- 👀 I’m interested in ... hacking blockchain  
 - 🌱 I’m currently learning ... code  
 - 💞️ I’m looking to collaborate on ...anyone who likes money 
 - 📫 How to reach me ...coreyiroll@gmail.com
